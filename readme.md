@@ -1,1 +1,1 @@
-###Kosmo Strzelanina###
+Kosmo Strzelanina
